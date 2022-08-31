@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @adithya2102
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning 10th 
+- 🌱 I’m currently in 11th 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 you can reach me out through Instagram __.r._adi_
 
 <!---
 adithya2102/adithya2102 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
